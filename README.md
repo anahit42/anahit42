@@ -9,7 +9,7 @@
 
 🇦🇲 From Armenia
 
-💬 Languages I know - Armenian, English, Russian. And I'm currently learning Portuguese.
+💬 Languages I know - Armenian, English, Russian.
 
 
 <!--
